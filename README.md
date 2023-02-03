@@ -8,3 +8,6 @@ i'm Leonardo Bogoni, and i'm eating your kneecaps
 - Absolutely not
 - void
 - why are you here?
+
+## contatti
+- 
